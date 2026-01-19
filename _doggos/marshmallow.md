@@ -39,3 +39,4 @@ records:
 Marshmallow is our newest addition, we've only had her a little while so we are still getting to know her.
 She was adopted from the Colorado Humane Society, my sister drove her from Colorado to us in Ohio.
 She is a little skiddish, but she is very sweet and loves to cuddle.
+Update 2026: We've had marshmallow for a while now and she is AMAZING. She is still scared of everything and is on a daily anxiety medication. But she is the sweetest dog I have ever met. She loves to cuddle on our bed.
